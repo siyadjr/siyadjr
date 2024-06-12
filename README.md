@@ -9,7 +9,7 @@
   - LinkedIn: [Siyadh PT](www.linkedin.com/in/siyadh-pt-9535672aa)
   - GitHub: [Siyadh-pt](https://github.com/siyadjr)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I can solve a Rubik's cube in under a minute!
+- ⚡ Fun fact: Iam Football lover!!
 
 
 <!---
